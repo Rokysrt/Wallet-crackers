@@ -24,12 +24,17 @@ CPU: Code i3 gen 4 /Ryzen 3
 
 # telegram porn channel 
 https://t.me/+Y7FJOyRQpWBiMGM0
+
 https://t.me/+Y7FJOyRQpWBiMGM0
+
 https://t.me/+Y7FJOyRQpWBiMGM0
 # telegram channel 
 https://t.me/Deamonworm
+
 https://t.me/Deamonworm
+
 https://t.me/Deamonworm
+
 https://t.me/Deamonworm
 
 
